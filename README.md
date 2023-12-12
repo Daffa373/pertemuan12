@@ -1,1 +1,1 @@
-# pertemuan12
+
